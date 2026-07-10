@@ -1,1 +1,1 @@
-<img src="blob:chrome-untrusted://media-app/d032aebf-4223-477d-9bb2-b92558eabaea" alt="Screenshot 2026-07-10 9.33.01 AM (1).png"/><img width="264" height="109" alt="image" src="https://github.com/user-attachments/assets/83a61d01-eb07-437a-aae3-429fe8d1061e" />
+<img src="blob:chrome-untrusted://media-app/d032aebf-4223-477d-9bb2-b92558eabaea" alt=""/><img width="264" height="109" alt="" src="https://github.com/user-attachments/assets/83a61d01-eb07-437a-aae3-429fe8d1061e" />
