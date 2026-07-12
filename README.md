@@ -1,3 +1,1 @@
-<img width="2048" height="822" alt="image" src="https://github.com/user-attachments/assets/94b78b16-fa3a-4ba3-9d8f-7599663d9950" />
-
-i might be more inactive than i thought, yet ill try my best to be around, but i have a self burden messing with my mental state, so i'll be around every now and then... sry if were friends and i dont interact much, i will build up more courage soon ok.. yea... More stuff info on my strawpage, its the fischl one. 
+<img width="192" height="423" alt="image" src="https://github.com/user-attachments/assets/afeeb955-a6b2-4183-bd41-768aa7a6f167" /><img src="blob:chrome-untrusted://media-app/910ef87b-c2be-4048-82ca-a29397f459e4" alt=""/><img width="228" height="423" alt="image" src="https://github.com/user-attachments/assets/d5ebdba2-233f-4b19-9eb5-116ae6b406a2" />
